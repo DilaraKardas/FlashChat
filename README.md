@@ -31,7 +31,7 @@
 
 Uygulamanın nasıl çalıştığını izlemek istersen:
 
-👉 [Uygulama Tanıtım Videosu](https://www.youtube.com/watch?v=videonun-linki-buraya)
+👉 [Uygulama Tanıtım Videosu](https://www.youtube.com/watch?v=zIzxvjhcfdM)
 
 ---
 
